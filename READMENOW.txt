@@ -1,0 +1,1 @@
+this ransomware is dangerous it can steal your data do not run it
